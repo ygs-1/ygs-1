@@ -8,7 +8,7 @@
 
 💞️ Minha contribuição para com a plataforma no momento é encontrar projetos e artigos no GitHub para ler, entender, praticar e aprender.
 
-⚡ Hobbies: Treinar na academia (minha terapia), jogar jogos online, assistir filmes e sair com amigos, namorada.
+⚡ Hobbies: Jogar jogos online, assistir filmes, passear com meu cachorro e vez ou outra viajar com a namorada. 
 
 📫 Contatos:
 
@@ -29,7 +29,7 @@
 
 💞️ I'm here to find projects and articles to read, understand, practice, learn and suggest corrections if necessary.
 
-⚡ My hobbies is going to gym (my therapy) play online games, watch movies, hang out with friends, girlfriend.
+⚡ My hobbies is play online games, watch movies, walk with my dog and sometimes traveling with my girlfriend..
 
 📫 Contact:
 
